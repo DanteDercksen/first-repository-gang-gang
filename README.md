@@ -12,3 +12,7 @@ Sadly however, this is a **FAKE** project.
 twitch.tv/niknak52518
 
 Thanks! Love you! BYEEEE!
+
+twitch.tv/scythe_d
+
+Much better than the previous added twitch
